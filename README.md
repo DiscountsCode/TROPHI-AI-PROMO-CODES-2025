@@ -5,7 +5,7 @@
 ## 👇
 MALIK
  
-## [Use This Link To Get 90% OFF](https://my.trophi.ai/get-trophi?via=Ikram)
+## [Use This Link To Get 90% OFF](https://my.trophi.ai/get-trophi?via=amir)
 
 ## ![SEOWriting AI Discount Banner](https://th.bing.com/th/id/OIP.QesC3BYXEd-M2PE4ILTn5AHaCR?w=198&h=80&c=7&r=0&o=5&dpr=2.5&pid=1.7)
 ---
