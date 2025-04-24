@@ -2,8 +2,7 @@
 
  Amazing Discounts with Trophi AI Promo Codes**  
  
-## 👇
-MALIK
+
  
 ## [Use This Link To Get 90% OFF](https://my.trophi.ai/get-trophi?via=amir)
 
